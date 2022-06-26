@@ -14,7 +14,7 @@ Kita juga bisa memesan tiket, hotel, makanan dan lainnya langsung dari apkliksi 
 
 
 
-Neaad UI / UX Design?
+Need UI / UX Design?
 Please chat me on WhatsApp
 +62855 3657 9490
 
